@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YouKnowWhoTT
 - 👀 I’m interested in Programing (curently)
-- 🌱 I’m currently learning Com-Sci
+- 🌱 I’m currently learning Com-Sci (Univ. Youtube)
 - 💞️ I’m looking to collaborate on how to get a job
 - 📫 How to reach me, well it depends (sorry)
 - 😄 Pronouns: definitly not rainbow
